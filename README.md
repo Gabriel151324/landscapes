@@ -1,3 +1,0 @@
--Login e senha
--landscapes incríveis
--localizações aproximada 
